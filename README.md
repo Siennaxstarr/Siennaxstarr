@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Siennaxstarr
+- 👋 Hi, I’m @siennastarrv@gmail.com
 - 👀 I’m interested in ... challanging myself.
 - 🌱 I’m currently learning ... coding!
 - 💞️ I’m looking to collaborate on ... projects!
